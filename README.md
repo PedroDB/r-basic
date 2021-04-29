@@ -26,4 +26,4 @@ Una vez termines el curso podrás seguir con los mejores cursos de análisis de 
 11. Introducción a distribuciones de probabilidad
 
 
-con Pedro Díaz 
+con Pedro Díaz xd.
